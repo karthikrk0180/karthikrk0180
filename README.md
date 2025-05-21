@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **karthikrk0180@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14o_ZLLYJVP9rO17wYDR6xtg3-nX--yDI/view?usp=sharing](https://drive.google.com/file/d/14o_ZLLYJVP9rO17wYDR6xtg3-nX--yDI/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14o_ZLLYJVP9rO17wYDR6xtg3-nX--yDI/view?usp=sharing](https://drive.google.com/file/d/1KFlT5H8dATUhF0gkAQ2CMDnc4a7bum9s/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
